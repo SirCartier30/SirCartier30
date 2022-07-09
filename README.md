@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Anything
 - 📫 How to reach me: ...[Email](oomotere12@gmail.com)
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ...  
+- ⚡ Fun fact: ... I speak Yoruba 
 -->
